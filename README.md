@@ -1,6 +1,6 @@
-# Uzuri is a new Angolan brand for products like lotion, exfoliating... everything related to skin.
+# Uzuri is an Angolan brand for products like lotion, exfoliating... everything related to skin.
 
-The CEO of Uzuri is a family friend so she decided to give me the opportunity to show what I have learned by allowing me to do her website. 
+The CEO of Uzuri body shop is a family friend and she decided to give me the opportunity to show what I have learned by allowing me to do her website. 
 
 The website is still in construction but so far that is how it looks like. 
 
